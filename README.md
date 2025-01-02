@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning cybersecurity
 - 📫 How to reach me mallagangadhar5@gmail.com
 - 😊  pronoun:ganga  
-- ⚡ Fun fact: gentle with evenyone
+- ⚡ : gentle with evenyone
 
 <!---
 gangaDhar-ui/gangaDhar-ui is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
