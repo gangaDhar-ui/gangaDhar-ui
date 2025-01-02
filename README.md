@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaininng knowledge about various tools which are heplful for cybersecuriy
 - 🌱 I’m currently learning cybersecurity
 - 📫 How to reach me mallagangadhar5@gmail.com
--pronoun:ganga  
+- 😊  pronoun:ganga  
 - ⚡ Fun fact: gentle with evenyone
 
 <!---
